@@ -1,4 +1,4 @@
-Jakarta - Penyelidikan kasus ledakan di SMAN 72 Kelapa Gading, Jakarta Utara, yang terjadi pada Jumat (7/11) siang masih berlanjut. Hingga kini, perkembangan dan kondisi para korban yang dirawat di beberapa rumah sakit di Jakarta terus dipantau. Sementara itu, pihak kepolisian telah mengamankan terduga pelaku yang diketahui merupakan salah satu siswa di sekolah yang bersangkutan. Berikut adalah rangkuman terbaru mengenai perkembangan kasus ledakan di SMAN 72 Jakarta.
+Penyelidikan kasus ledakan di SMAN 72 Kelapa Gading, Jakarta Utara, yang terjadi pada Jumat (7/11) siang masih berlanjut. Hingga kini, perkembangan dan kondisi para korban yang dirawat di beberapa rumah sakit di Jakarta terus dipantau. Sementara itu, pihak kepolisian telah mengamankan terduga pelaku yang diketahui merupakan salah satu siswa di sekolah yang bersangkutan. Berikut adalah rangkuman terbaru mengenai perkembangan kasus ledakan di SMAN 72 Jakarta.
 
 ## 1. Jumlah dan Kondisi Terkini Korban
 

@@ -1,4 +1,4 @@
-JAKARTA, metrotvnews.com — Jagat maya hari ini diramaikan klaim kebocoran masif data registrasi SIM card warga Indonesia. Akun yang dikaitkan dengan “Bjorka” disebut kembali muncul di forum gelap, mengklaim memiliki 128.293.821 rekam data berformat .SQL yang memuat NIK, nomor telepon, operator, hingga tanggal registrasi. Di media sosial, beredar pula rujukan yang menampilkan kontak bernama “Roy Suryo”. Materi yang beredar digunakan publik sebagai contoh bahwa nomor tokoh publik diduga ikut tercantum. 
+Jagat maya hari ini diramaikan klaim kebocoran masif data registrasi SIM card warga Indonesia. Akun yang dikaitkan dengan “Bjorka” disebut kembali muncul di forum gelap, mengklaim memiliki 128.293.821 rekam data berformat .SQL yang memuat NIK, nomor telepon, operator, hingga tanggal registrasi. Di media sosial, beredar pula rujukan yang menampilkan kontak bernama “Roy Suryo”. Materi yang beredar digunakan publik sebagai contoh bahwa nomor tokoh publik diduga ikut tercantum. 
 
 ## Apa yang Diklaim Bocor?
 

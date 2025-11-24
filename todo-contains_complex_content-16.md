@@ -1,4 +1,4 @@
-JAKARTA, KOMPAS.com - Komisi Pemberantasan Korupsi (KPK) melakukan operasi tangkap tangan (OTT) di Kabupaten Ponorogo, Jawa Timur, pada Jumat (7/11/2025). Informasi tersebut dibenarkan oleh Wakil Ketua KPK Fitroh Rohcahyanto saat dikonfirmasi Kompas.com, Jumat. “Benar,” kata Fitroh. Fitroh mengatakan, dalam operasi senyap itu, KPK mengamankan beberapa pihak, salah satunya Bupati Ponorogo Sugiri Sancoko. “Sudah (ditangkap),” ujarnya.
+Komisi Pemberantasan Korupsi (KPK) melakukan operasi tangkap tangan (OTT) di Kabupaten Ponorogo, Jawa Timur, pada Jumat (7/11/2025). Informasi tersebut dibenarkan oleh Wakil Ketua KPK Fitroh Rohcahyanto saat dikonfirmasi Kompas.com, Jumat. “Benar,” kata Fitroh. Fitroh mengatakan, dalam operasi senyap itu, KPK mengamankan beberapa pihak, salah satunya Bupati Ponorogo Sugiri Sancoko. “Sudah (ditangkap),” ujarnya.
 
 ## Profil Bupati Ponorogo
 

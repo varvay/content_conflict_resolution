@@ -1,4 +1,4 @@
-Jakarta, CNN Indonesia -- Komisi Pemberantasan Korupsi (KPK) telah resmi menetapkan Bupati Ponorogo Sugiri Sancoko (SUG) sebagai tersangka dalam kasus dugaan suap. Penetapan tersangka itu dilakukan KPK pada Minggu (9/11), setelah sebelumnya Sugiri dijerat dalam Operasi Tangkap Tangan (OTT) pada Jumat (7/11). Berikut CNNIndonesia.com rangkum fakta-fakta terbaru kasus OTT yang menjerat Bupati Ponorogo:
+Komisi Pemberantasan Korupsi (KPK) telah resmi menetapkan Bupati Ponorogo Sugiri Sancoko (SUG) sebagai tersangka dalam kasus dugaan suap. Penetapan tersangka itu dilakukan KPK pada Minggu (9/11), setelah sebelumnya Sugiri dijerat dalam Operasi Tangkap Tangan (OTT) pada Jumat (7/11). Berikut CNNIndonesia.com rangkum fakta-fakta terbaru kasus OTT yang menjerat Bupati Ponorogo:
 
 ## Empat tersangka
 
